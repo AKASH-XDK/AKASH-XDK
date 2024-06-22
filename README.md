@@ -27,5 +27,3 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=30&pause=1000&color=34F72A&random=false&width=435&lines=%F0%9D%9A%83%F0%9D%99%B7%F0%9D%99%B0%F0%9D%99%BD%F0%9D%99%BA+%F0%9D%9A%88%F0%9D%99%BE%F0%9D%9A%84)](https://git.io/typing-svg)
 
-
-[![Screenshot_20240607-152152 (1).png](https://i.postimg.cc/QMFXNQBN/Screenshot_20240607-152152 (1).png)](https://postimg.cc/94j3Jqts)
