@@ -5,7 +5,7 @@
 
 ### 𝙿𝚁𝙾𝙵𝙸𝙻𝙴 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂... 
  
-![Visitor Count](https://profile-counter.glitch.me/{RIMON-143}/count.svg)
+![Visitor Count](https://profile-counter.glitch.me/{AKASH-XDX}/count.svg)
 <br />
 <div align="center"> 
 <h3>☄️𝚃𝙷𝙰𝙽𝙺𝚂 𝙵𝙾𝚁 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂☄️ </h3>
