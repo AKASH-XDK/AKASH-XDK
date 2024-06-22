@@ -1,7 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=50&duration=5555&pause=3000&color=F724738D&random=false&width=435&height=100&lines=HI+I+AM+AKASH)](https://git.io/typing-svg)
 
 ## 𝚂𝙾𝙲𝙸𝙰𝙻 𝙻𝙸𝙽𝙺 :
-[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/R1M0N.143) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/itsrimon.143) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@@bdcybertech?si=3kOSu1WYozCQPKfF) 
+[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://www.facebook.com/profile.php?id=100076838078407&mibextid=ZbWKwL) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/itsrimon.143) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@@bdcybertech?si=3kOSu1WYozCQPKfF) 
 
 ### 𝙿𝚁𝙾𝙵𝙸𝙻𝙴 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂... 
  
